@@ -3,9 +3,9 @@
 11 Minute Ago, Welcome to Nintendo eShop Card Codes Free! Are you a Nintendo fan looking for free eShop card codes? Look no further! Join our online event to get your hands on free Nintendo eShop card codes that you can use to purchase games, apps, and more on the Nintendo eShop.
 How to Participate: Simply follow the instructions provided during the event to claim your free eShop card codes. It's that easy!
 
-**[✅ CLICK HERE TO GET FREE NINTENDO GIFT CARD NOW ✅](https://cutt.ly/HeKsyRvm)**
+**[✅ CLICK HERE TO GET FREE NINTENDO GIFT CARD NOW ✅](https://tinyurl.com/yu8sv8t7)**
 
-**[✅ CLICK HERE TO GET FREE NINTENDO GIFT CARD NOW ✅](https://cutt.ly/HeKsyRvm)**
+**[✅ CLICK HERE TO GET FREE NINTENDO GIFT CARD NOW ✅](https://tinyurl.com/yu8sv8t7)**
 
 
 
